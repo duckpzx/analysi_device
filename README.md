@@ -1,4 +1,5 @@
-<img width="1845" height="908" alt="image" src="https://github.com/user-attachments/assets/1b52b706-4d0f-47e1-8cfb-30977ba2eb86" />
+<img width="452" height="802" alt="image" src="https://github.com/user-attachments/assets/6dfdf806-1e74-43b6-80b2-c4f993e9a7c2" />
+<img width="452" height="811" alt="image" src="https://github.com/user-attachments/assets/a81ca36c-9ba2-4c52-95fd-85d5d3fe210c" />
 
 # Thu Thập Vân Tay Thiết Bị
 
