@@ -1,4 +1,4 @@
-![Uploading image.png…]()
+<img width="974" height="892" alt="image" src="https://github.com/user-attachments/assets/1d219c0c-da80-4ca0-b881-c7fa41869c07" />
 
 # Thu Thập Vân Tay Thiết Bị
 
